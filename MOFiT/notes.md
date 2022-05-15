@@ -62,5 +62,6 @@ Karolina:
 - skonsultować umowe
 -
 
-
-
+Michał:
+- Patrycja na prubę do końca roku
+- zbiórki piątki 18.00
